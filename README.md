@@ -1,5 +1,5 @@
 # another-repo
-29/04/2023
+29/04/2023 (just thoughts)
 
 Its kinda weird how I just see life from my POV.. like i cant see from others ppls POV so I get this tiny feeling that everythings staged. But I imagine that everyones the main character in their life.
 Life is really weird. Like what is its purpose
