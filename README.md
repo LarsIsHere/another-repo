@@ -1,7 +1,7 @@
 # another-repo
 29/04/2023 (just thoughts)
 
-Its kinda weird how I just see life from my POV.. like i cant see from others ppls POV so I get this tiny feeling that everythings staged. But I imagine that everyones the main character in their life.
+Its kinda weird how I just see life from my POV.. But I imagine that everyones the main character in their life.
 Life is really weird. Like what is its purpose
 What am i supposed to find out, I dont get it. 
 Back to the POV thing, i forgot to write down that,.. like... Sometimes I wish what other ppl are doing. For example any youtuber. are they recording a video? going out? Whats going on in other peoples lives. Im very curious about that
@@ -9,11 +9,11 @@ specific thing. Im not sure why but i just am. And why does the religions of god
 100% sure about religions so god should accept the way it is. And accept people with and without sins. Else it just doesnt seem logical.
 Something just feels wrong about a god existing. In my opinion its something beyond what we will ever possibly know. But the problem with that is that we wont ever live to know, which makes it difficult to prove. But.... thats the point
 ,. I dont think we are supposed to find a leader or something. its more about ourselves. But obiously i dont know cause that would defeat the purpose of the prior sentence.
-But why arent we supposed to know
-isnt that weird
-whats the reasoning that we dont know
-if we would have to know and theres really something beyond our knowledge
-why dont we know
+But why arent we supposed to know,
+isnt that weird,
+whats the reasoning that we dont know,
+if we would have to know and theres really something beyond our knowledge,
+why dont we know.
 maybe cause theres nothing beyond. I think thats the problem. We humans cant cope well alone, and even tho we are 8 billion people. knowing that the only life discovered so far is us... is kind of... intimidating. Cause it kind of means that we dont have a purpose at all. and whats a human without a purpose? its darkness. its sad. its all the negative. How is one supposed to live with no purpose in mind. Then why live? But isnt it funny how so far, we have not yet went
 extinct. Of course, dinos have survived way longer than us, but still. We for some reason dont seem to just die. We always evade it somehow. and I dont mean the human death. i mean the extinction of our planet. I know scientists claim
 to be able to prove all of that, but to be honest im not looking for direct answers. i just throw the questions into the air. or more like into this keyboard which is a computer on my desk on the floor of my room in an apartment of a building on a street of a city in a region of a country on a territory of a planet which is orbiting around a sun in the nothingness. see how small we actually are? pretty tiny.
@@ -24,6 +24,6 @@ well thats funny. anoter concept. "wrong" and "right". What is wrong? can someth
 confused yet? yeah same. whatever you answered i think the same way. 
 we all do. regardless if you have mental health problems or not. we always wonder why we have or why we dont have.
 really funny how i wrote so much in matter of minutes. talking  to oneself is very interesting. you sometimes even discover stuff you didnt know before. and even tho we never discover the purpose of ourselves, we keep thinking about it. we continue questioning it. and we know we wont find an answer. yet here we are. questioning everything. 
-
+--
 so,
 what could i possibly write about now if i have already denied that you can or will find a solution. well... thats really up to you.. you can continue your thoughts here (request to add a file with your thoughts). it only takes up a couple minutes and im sure youll find the time. so take some of your time and write. write whatever you want, in whatever language you want. dont worry about capitalizing. i also forgot a bunch of times. you can fight my arguments or not. Again this is a moment for you to just think about it.
